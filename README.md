@@ -1,0 +1,1 @@
+download performance stability apk for increasibg bgmi performance it will increase your performace and also disable battery optimisation giving max performancr id android device by give cancelling gyroscope delay and tourch response making app feels smoother and better than ever
